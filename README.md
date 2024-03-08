@@ -1,2 +1,2 @@
 # WHwNRV-Content-Collection
-Créditos GenerixUser (Mockup Man [Nebula-WNR]).
+Créditos Aarex, GenerixUser (Mockup Man [Nebula-WNR]) y PeterTrifonov1999A1.
